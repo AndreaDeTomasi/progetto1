@@ -1,1 +1,1 @@
-sto imparando
+sto imparando bene
